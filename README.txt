@@ -27,6 +27,9 @@ Two examples:
 https://youtu.be/79X_Wzl6pBA
 https://youtu.be/gcxVv6ikLZE
 
+Author´s blog
+http://alca3d.blogspot.com.es/
+
 
 This video presents the Installation and basic operation:
 https://www.youtube.com/watch?v=3W1fqKXz-V4
